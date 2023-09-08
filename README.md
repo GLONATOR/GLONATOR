@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @GLONATOR Also Konwn As Thakku_Ji, I Like The Second One The Most😁
+- 👀 I’m interested in programming very very very very very very very very very very very very very very very very very very very very very much......
+- 🌱 I’m currently learning C, Python, and Web development.😉
+- 💞️ I’m looking to collaborate on anything..... SIMPLE one😎
+- 📫 How to reach me, any means feel free to msg me,
+-               Email - glonatorplayz@gmail.com
+-               Insta - emmanual_manoj
